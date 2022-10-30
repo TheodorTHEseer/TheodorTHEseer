@@ -1,4 +1,4 @@
-- Hi, I’m @n879a
+- Hi, I’m @THeodorTHEseer or @n879a
 - I’m not interested in hoi4 mods, but shit happens
 - I’m currently learning Java and Docker  
 - How to reach me: fedor.prozorov@gmail.com
